@@ -1,1 +1,1 @@
-# Chậu câ thông minh - Smart Plant
+# Chậu cây thông minh - Smart Plant
